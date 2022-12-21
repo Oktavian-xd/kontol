@@ -1,0 +1,2 @@
+# kontol
+Memek ia enak
